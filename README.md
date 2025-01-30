@@ -1,1 +1,1 @@
-# :D![zzz](https://github.com/user-attachments/assets/6c44be64-5534-44cd-8c8d-95fb9f8ea1cc)
+# :D![Ekran Görüntüsü_20250130_041941](https://github.com/user-attachments/assets/b5e52265-157a-4bb6-a92a-c6449f173680)
